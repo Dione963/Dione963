@@ -12,5 +12,3 @@
 
   ![](https://media.tenor.com/drIYxSd6pdIAAAAC/yes-dog.gif)  ![](https://media.tenor.com/drIYxSd6pdIAAAAC/yes-dog.gif)  ![](https://media.tenor.com/drIYxSd6pdIAAAAC/yes-dog.gif)  ![](https://media.tenor.com/drIYxSd6pdIAAAAC/yes-dog.gif)
 
-  ![](https://media.tenor.com/Zp9f2I9FpFcAAAAd/anonimous-hacker.gif)
-  
